@@ -1,2 +1,0 @@
-# YourBaa
-MUSIC BOT CREATE BY : YOURBAE
